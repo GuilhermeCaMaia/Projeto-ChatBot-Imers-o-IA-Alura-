@@ -1,1 +1,1 @@
-# Projeto-ChatBot-Imers-o-IA-Alura-
+# Projeto-ChatBot-Imersao-IA-Alura-
